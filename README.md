@@ -1,4 +1,4 @@
-# 📄 Yuki Minakawa - 職務経歴書 / Resume
+# 📄 皆川 祐希（Minakawa Yuki） - 職務経歴書 / Resume
 
 ## 👤 概要 / Summary
 
